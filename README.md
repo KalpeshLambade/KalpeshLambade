@@ -36,8 +36,8 @@
 ---
 
 ## 🔗 Links
-- 💼 LinkedIn: [linkedin.com/in/KalpeshLambade](https://linkedin.com/in/KalpeshLambade)
-- 🐦 Twitter: [@KalpeshLambade](https://twitter.com/KalpeshLambade)
+- 💼 LinkedIn: [linkedin.com/in/KalpeshLambade](https://www.linkedin.com/in/kalpesh-lambade?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 🐦 Twitter: 
 
 ---
 
